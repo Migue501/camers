@@ -1,0 +1,2 @@
+# camers
+camera horizaot lock is a camera for horizont lock made by claudeeeeeeeee por eso las leyes de lad leyes de las leyes dendjdhdhdjsbbswycosoydsyofoyxisyxoysxiysxiysxisyfoysxsoyfsyoxsoyxsyoxshkxsihxsihxsohxsoycsyocsoyxyisxoyscitxsitxsiyxsiysxiyxaihyxaiysxohsxoysxoysxoyxsiysxihwxihsxohaxohaxaigxagixtidt9d9td9dtirdirzzrijzridtfotidtidturzidttixtizzitxi
